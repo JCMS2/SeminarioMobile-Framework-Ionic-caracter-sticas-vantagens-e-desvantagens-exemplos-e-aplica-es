@@ -1,0 +1,1 @@
+# SeminarioMobile-Framework-Ionic-caracter-sticas-vantagens-e-desvantagens-exemplos-e-aplica-es
